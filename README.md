@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **vsinpar3140@gmail.com**
 
-- 📄 Know about my experiences [https://www.dropbox.com/home?preview=vivek+new+Resume.pdf](https://www.dropbox.com/home?preview=vivek+new+Resume.pdf)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1Emnby7RY5CORm1CEFPrSxLfR-mecBVGX/view?usp=sharing](https://drive.google.com/file/d/1Emnby7RY5CORm1CEFPrSxLfR-mecBVGX/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
