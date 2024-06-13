@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **vsinpar3140@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Emnby7RY5CORm1CEFPrSxLfR-mecBVGX/view?usp=sharing](https://drive.google.com/file/d/1Emnby7RY5CORm1CEFPrSxLfR-mecBVGX/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1YOZmtypl88vcuYcQ_VYdzt1DhR7Si61l/view?usp=sharing](https://drive.google.com/file/d/1YOZmtypl88vcuYcQ_VYdzt1DhR7Si61l/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
